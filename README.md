@@ -3,6 +3,7 @@
 When you think of Monopoly, what comes to mind? The colorful game board, the little metal tokens, and of course — the roll of the dice. Those two small cubes are central to the gameplay, dictating everything from how far you move to whether you end up in jail. But have you ever wondered how Monopoly dice are made?
 
 [✅ Click Here Get Now ✅](https://tcmi.top/monopoly/)
+
 [✅ Click Here Get Now ✅](https://tcmi.top/monopoly/)
 
 A Brief History of the Dice in Monopoly
